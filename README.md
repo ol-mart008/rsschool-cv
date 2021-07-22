@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ol-mart008.github.io/rsschool-cv/cv
